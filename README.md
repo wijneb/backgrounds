@@ -1,2 +1,2 @@
 # backgrounds
-wallpapers
+my favorite wallpapers
